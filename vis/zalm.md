@@ -3,7 +3,7 @@
 
 | VOORBEREIDING | BEREIDINGSTIJD | TOTALE TIJD |
 |---|---|---|
-| 1 MIN | 6 MINUTEN | 7 MINUTEN 
+| 10 MIN | 60 MINUTEN | 70 MINUTEN 
 
 
 ## Ingredienten
