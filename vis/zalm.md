@@ -1,4 +1,4 @@
-# Huid gebakken zalm met gepofte aardappel en kruidenroom/saus.
+# Huid gebakken zalm met gepofte aardappel en kruidenroom met kappertjes boter saus.
 > Voor 2 personen
 
 | VOORBEREIDING | BEREIDINGSTIJD | TOTALE TIJD |
