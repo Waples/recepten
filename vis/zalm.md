@@ -47,6 +47,11 @@
 - Breng eventueel op smaak met een beetje peper en zout en serveer meteen.
 
 
+##### Haricots verts
+- Kook in 4 min. beetgaar
+- Giet af en spoel af onder koud stromend water.
+
+
 #### Kappertjes Botersaus
 - Doe de roomboter in een steelpannetje en laat smelten.
 - Roer er de kappertjes door.
@@ -60,3 +65,4 @@
 ##### Links:
 - https://madebyellen.com/zalm-op-de-huid-bakken/
 - https://www.ah.nl/allerhande/recept/R-R861098/gepofte-aardappel-met-kruidenroom
+- https://www.ah.nl/allerhande/recept/R-R1194696/salade-met-haricots-verts-en-spek
