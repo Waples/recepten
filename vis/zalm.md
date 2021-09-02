@@ -14,6 +14,7 @@
 |Sjalot|1 stuk|
 |Peterselie|op smaak|
 |Roomkaas (met kruiden)|125gr|
+|Haricots Verts|Pot/blik whatever|
 |Chreme fraiche|125gr|
 |Kappertjes|2 Eetlepels|
 |Roomboter|25-50 gr|
