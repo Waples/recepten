@@ -2,7 +2,7 @@
 > Voor 2 personen.
 
 ## Tijd
-5 minuten voorbereiding.
+5 minuten voorbereiding.<br>
 15 minuten kooktijd.
 
 
