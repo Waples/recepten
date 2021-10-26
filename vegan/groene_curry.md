@@ -1,6 +1,10 @@
 # Groene Curry
 > Voor 2 personen.
 
+## Tijd
+5 minuten voorbereiding.
+15 minuten kooktijd.
+
 
 ### Ingredienten
 - 1 Courgette
